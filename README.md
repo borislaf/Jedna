@@ -1,0 +1,2 @@
+# Jedna
+Skusobny repozitar
